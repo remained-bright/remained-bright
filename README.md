@@ -1,3 +1,3 @@
-### introduce 介绍
+### remained-bright
 
-> email remained-bright@protonmail.com
+> email : remained-bright@protonmail.com
